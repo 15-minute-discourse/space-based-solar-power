@@ -21,6 +21,22 @@ Don't miss this thought-provoking discussion on **one of the most promising solu
 
 ---
 
+- [Solving the Energy Crisis with Space-Based Solar Power!](#solving-the-energy-crisis-with-space-based-solar-power)
+  - [Space-Based Solar Power: Impacts and Implications](#space-based-solar-power-impacts-and-implications)
+  - [Space-Based Solar Power: Applications, Ethics, and Challenges](#space-based-solar-power-applications-ethics-and-challenges)
+  - [Space-Based Solar Power: Sustainability, Impacts, and Security](#space-based-solar-power-sustainability-impacts-and-security)
+  - [Space-Based Solar Power: Challenges and Opportunities](#space-based-solar-power-challenges-and-opportunities)
+  - [Space-Based Solar Power: A Comprehensive Guide](#space-based-solar-power-a-comprehensive-guide)
+  - [Space-Based Solar Power: Financial Opportunities and Risks](#space-based-solar-power-financial-opportunities-and-risks)
+  - [Space-Based Solar Power: Best and Worst Case Scenarios](#space-based-solar-power-best-and-worst-case-scenarios)
+  - [Space-Based Solar Power: Advantages, Disadvantages, and Risks](#space-based-solar-power-advantages-disadvantages-and-risks)
+  - [Space-Based Solar Power: Global Impact](#space-based-solar-power-global-impact)
+  - [Space-Based Solar Power: A Global Landscape](#space-based-solar-power-a-global-landscape)
+  - [Space-Based Solar Power: Technology, Challenges, and Future](#space-based-solar-power-technology-challenges-and-future)
+
+
+---
+
 ## Space-Based Solar Power: Impacts and Implications
 
 The Impact of In-Space Manufacturing on SBSP's Economic Feasibility
